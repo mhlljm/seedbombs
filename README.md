@@ -3,8 +3,11 @@
 Links
 
 https://en.wikipedia.org/wiki/Seed_ball
+
 https://seedbomb.city/?lang=en
+
 https://www.gardenista.com/posts/diy-wildflower-seed-bombs/
+
 https://utopia.org/guide/guerrilla-gardening/ 
 
 "Crime pays but botany doesn't", really interesting walk and talks in all kinds of landscapes: https://www.youtube.com/channel/UC3CBOpT2-NRvoc2ecFMDCsA
@@ -20,16 +23,27 @@ https://www.zdf.de/kinder/loewenzahn/gummi-108.html
 Seed Ideas:
     
 Fruit seeds from Apples, Pears, Chilly, Tomato, Apricots
+
 'Weeds' Dandelions
+
 Hemp ;)
+
 Spices (to soak before hand), e.g. cumin, cilantro, mustard, coriander
+
 Seeds found in Birdfeed like Sunflower seeds; Pumpkin
+
 Beans: Corn, Mung Bean, Azuki Red Bean, etc.
+
 Physalis
+
 Roots: Sweet Potatoes, Potatos, Garlic, Onions, Leeks etc.
+
 Seeds found on field edge: Poppy, Cornflower
+
 Vegetables: Tomatoes, Cucumber, etc.
+
 Make bees happy: Ivy (blooms in autumn, when there aren't a lot of other flowers)
+
 
 Shared Knowledge: 
 
@@ -41,14 +55,20 @@ Use soil and: clay, dough (flour+water), paper mache
 People/ further Resources:
     
 Ron Finley
+
 Pascal Baudar, Forager (West Coast) https://www.motherearthnews.com/store/author/pascal-baudar 
+
 Sandar Katz's Wild Fermentation
+
 Paul Stamets for Mushrooms
+
 Geoff Lawton, Permaculture
+
 Bill Mollison's Permaculture Books
 https://www.permaculturenews.org/2016/09/25/bill-mollison/ 
 
 Contact:
 
 Min
+
 oceanroad21@icloud.com
