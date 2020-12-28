@@ -20,6 +20,8 @@ http://www.flowersinisrael.com/plant_list_alpha-gh.htm
 
 https://www.zdf.de/kinder/loewenzahn/gummi-108.html
 
+
+
 Seed Ideas:
     
 Fruit seeds from Apples, Pears, Chilly, Tomato, Apricots
@@ -45,12 +47,14 @@ Vegetables: Tomatoes, Cucumber, etc.
 Make bees happy: Ivy (blooms in autumn, when there aren't a lot of other flowers)
 
 
+
 Shared Knowledge: 
 
 What grows really well in Germany is: Nasturtium, cornflower, marigold, Turkish dragonhead and cosmea, Parsley (seeds can be bought in store), calendula
 
 Use soil and: clay, dough (flour+water), paper mache
 - In a ratio in which the mixture clumps together well
+
 
 People/ further Resources:
     
@@ -66,6 +70,7 @@ Geoff Lawton, Permaculture
 
 Bill Mollison's Permaculture Books
 https://www.permaculturenews.org/2016/09/25/bill-mollison/ 
+
 
 Contact:
 
